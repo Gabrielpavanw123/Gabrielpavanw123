@@ -1,0 +1,6 @@
+- # Sobre mim
+-  
+- Meu nome e Gabriel Pavan Wesling
+- No momento estou no primeiro ano
+- Torcedor colorado 
+- Gosto muito de pescar e de esports
